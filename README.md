@@ -1,1 +1,0 @@
-# Daniel-Quiche.github.io
